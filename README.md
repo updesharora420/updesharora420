@@ -7,7 +7,7 @@
 
 - ⚡ Fun fact **42...0**
 
-<h3 align="left">Connect with me:</h3>@updesshh
+<h3 align="left">Connect with me: @updesshh</h3>
 <p align="left">
 </p>
 
